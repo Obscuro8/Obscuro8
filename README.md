@@ -12,4 +12,4 @@
 -->como falar comigo
 andre.resner@escola.pr.gov.br
 
-!.[_](https://media.tenor.com/jtd02svgX_cAAAAd/cosmic-garou-awakened-garou.gif)
+![](https://media.tenor.com/jtd02svgX_cAAAAd/cosmic-garou-awakened-garou.gif)

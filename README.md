@@ -12,5 +12,5 @@
 -->como falar comigo
 andre.resner@escola.pr.gov.br
 
-![]https://media.tenor.com/YBBeZy9hQEoAAAAC/kagami-aomine.gif
+![https://media.tenor.com/YBBeZy9hQEoAAAAC/kagami-aomine.gif]
 

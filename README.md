@@ -6,7 +6,7 @@
 - 🤔 Estou procurando ajuda com ...ninguem?
 - 💬 Pergunte-me sobre ...nada
 - 📫 Como chegar ate mim: ... nao chegue
-- @@ Pronomes: ... ele/dele
+- :# Pronomes: ... ele/dele
 - ⚡ fato: ...sou inteligente, porem orgilhoso, mas pera...essa desculpa ja usei...
 - 
 -->como falar comigo

@@ -7,7 +7,7 @@
 - 💬 Pergunte-me sobre ...nada
 - 📫 Como chegar ate mim: ...nao chegue
 - :# Pronomes: ...ele/dele
-- ⚡ fato: ...sou inteligente, porem orgilhoso, mas pera...essa desculpa ja usei...
+- ⚡ fato: ...sou inteligente, porem orgulhoso, mas pera...essa desculpa ja usei...
 - XD Idade: ...15 anos no momento
 - :) Oque mais gosto é...basquete
 - 
